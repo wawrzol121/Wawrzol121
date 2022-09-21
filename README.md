@@ -1,2 +1,3 @@
-# Bartosz Wawrzyniak - elektryk
+# Bartosz Wawrzyniak 
+
 wyjazdy do Niemczech 
